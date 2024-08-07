@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Prem Patil
+- 👀 I’m interested in web Development
+- 🌱 I’m currently learning in BCA
+- 📫 How to reach me instagram :- @_theonly__prem_
+- 😄 Pronouns: ...
+- ⚡ Fun fact: ...
